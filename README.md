@@ -10,4 +10,4 @@ In the past month, what are the three main activities you have been doing at wor
 R: unpacking keyrings, and selling magnets to tourists :P 
 
 What are the three most important tools/strategies you use for organizing your work?
-R: Using a schedule, syncronized calendars, different pen colors. 
+HEI HEI! :-)
